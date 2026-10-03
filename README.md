@@ -156,3 +156,4 @@ I'm currently focused on building a strong foundation rather than simply collect
 ---
 
 *Thanks for visiting my profile!*
+---
